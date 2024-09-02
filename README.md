@@ -1,4 +1,4 @@
-# DAnelol
+# DAnelol e minhas info.
 -eu sou eu, e gosto de maça,
 
 ![](https://media.tenor.com/g3GjYQD4Gt8AAAAM/green-screen.gif)
